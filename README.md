@@ -1,3 +1,5 @@
+Trifosa--icecream-parlour-
+
 🥄 Trifosa - Pure Vanilla Bliss 🍨
 Welcome to Trifosa, your one-stop destination for vanilla ice cream lovers! 🧁✨ Dive into a world of creamy, flavorful delights and make every moment sweeter, one scoop at a time.
 
